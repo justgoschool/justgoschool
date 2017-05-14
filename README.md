@@ -1,0 +1,2 @@
+# justgoschool
+mining
